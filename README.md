@@ -43,7 +43,7 @@ This course covers:
 ## 📖 Certificate
 
 I successfully completed this course! 🏆  
-*Coming soon — will be added once issued by Coursera.*
+[Coursera Certificate](https://www.coursera.org/account/accomplishments/verify/P25FHK0BB68O)  
 
 ---
 
